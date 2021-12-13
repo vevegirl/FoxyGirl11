@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @FoxyGirl11
+- 💠 I'm 20 years old and from Wisconsin,USA
+-  ♊ I'm a Gemini And My Birthday Is June 13th
+- 👀 I’m interested in learning more about HTML5 And CSS3
+- 🌱 I’m currently learning a little bit more about HTML5 And CSS3
+- 💞️ I’m looking to collaborate on anyone who has started or is thinking about coding a Club Penguin Private Server With Custom Items, Features And Parties
+- 📫 You can reach me on discord Ella Eva Evans#8651
